@@ -5,3 +5,17 @@ Heidi ist ein Madchen, das von seiner Tante grossgezogen wird und spaeter zu ihr
 * nett
 * lebendig
 * aufgedreht
+
+
+
+
+
+
+
+
+
+
+
+
+
+> Heidi, Heidi, deine Welt sind die Berge!
